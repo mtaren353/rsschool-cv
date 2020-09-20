@@ -1,4 +1,4 @@
-1. Kurushin Vladislav 
+1. Kurushin Vladislav :slightly_smiling_face:
 1. *email: __kurushinvladislav@gmail.com__ :email:пш contact number: __+7-(911)-904-15-17__* :telephone_receiver:
 1. By my second ten, I began to think about the future and came to the conclusion that intellectual work is more interesting and better paid, and I decided that I want to move in this direction and decided to stop at programming, I just try and learn a lot and want to achieve great results in this matter. :smile:
 1. _I went through the pool at **school 21**, it took place in Kazan and lasted for a month, there I managed to learn the programming language C and learned a lot for myself_
